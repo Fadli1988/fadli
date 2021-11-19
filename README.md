@@ -1,0 +1,2 @@
+# fadli
+Mining
